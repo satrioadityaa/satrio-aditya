@@ -1,2 +1,0 @@
-# satrio-aditya
-personal branding
